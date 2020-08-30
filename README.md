@@ -1,0 +1,2 @@
+# ImportantNotes
+ImportantNotesofdiffrentconcepts
